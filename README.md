@@ -3,7 +3,7 @@
 
 **Save Point**: FLS-Infrastructure-Build-Feb2026-SavePoint (GHL Snapshot v0)
 **Date**: March 7, 2026
-**Location ID**: VOj3Nh4W02ZhyAtuG9pD
+**Location ID**: _redacted (see private companion brain)_
 
 ---
 
